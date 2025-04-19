@@ -8,3 +8,4 @@ DNI !racist, homophonic, dniuf,under 14 and above 21!
 DO NOT :Copy or take too much inspiration from my avatars!
 mostly in the jjk or DB area as goten(PONYTOWN)
 I am AUTISTIC and if u have a problem with that ...talk to my lawyer vrosky😭🙏💔
+tholala
