@@ -1,5 +1,12 @@
 # READ.ME_
 READ.ME
+•─────────•°•❀•°•─────────•
+
+      ᕬ  ᕬ     
+
+    （⌯'-'⌯)     
+
+┏━♡━ U U━♡━┓
 born in 2008 birthday 16feb (you do the math😉 /nbr) i have an unhealthy obsession with phonk/funk/jersey club remixes 「DO NOT JUDGE」
 [![6120370ab3bfa08c8ab7bd505ff4ce3b.gif](https://i.postimg.cc/x8NByjvw/6120370ab3bfa08c8ab7bd505ff4ce3b.gif)](https://postimg.cc/jnK8Rbkc)
 NICKNAMES 【☆berserky☆ •megan• ◇°☆Mcrae☆°◇】
